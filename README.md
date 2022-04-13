@@ -8,3 +8,6 @@
 fybitch/fybitch is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+i am the one don't wait of turn don't need a gun to get respect upon the street!!
+
